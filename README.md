@@ -1,1 +1,1 @@
-Acesse o site clicando [aqui](https://yuki-imiura.github.io/fds-uninter/)
+Acesse o site clicando [aqui](https://yuki-imiura.github.io/site-curriculo/)
